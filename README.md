@@ -1,7 +1,7 @@
 # Μελοποιημένα ποιήματα από τα Ανθολόγια του Δημοτικού
-Flipbook: [Μελοποιημένα ποιήματα από τα Ανθολόγια του Δημοτικού](https://fotoaik.eu/flipbooks2023/anthologia/)
+Flipbook: [Μελοποιημένα ποιήματα από τα Ανθολόγια του Δημοτικού](https://photodentro.edu.gr/v/item/ugc/8525/2899)
 
-Credits: [Photodentro](https://photodentro.edu.gr/ugc/r/8525/2899?locale=el#)
+Credits: [Photodentro](https://photodentro.edu.gr/ugc/r/8525/2899?locale=el#))
 
 ## ΠΕΡΙΓΡΑΦΗ
 Σε αυτό το flipbook υπάρχουν όλα τα ποιήματα από τα τρία ανθολόγια του Δημοτικού που έχουν μελοποιηθεί. Οι μαθητές διαβάζουν κι ακούνε το μελοποιημένο ποίημα που θα διδαχθούν.
